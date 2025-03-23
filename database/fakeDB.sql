@@ -1,0 +1,1 @@
+#mencuri adalah kejahatan, kejahatan yang hanya bisa dimaafkan dengan pembalasan yang setimpal#
